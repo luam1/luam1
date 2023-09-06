@@ -8,4 +8,4 @@ Meu nome é Luan Moraes
 
 ![]()
 
-https://midia.tenor.com%2Fview%2Fsolo-leveling-gif-
+https://midia.tenor.com/i7llTDasolo-leveling-gif-
