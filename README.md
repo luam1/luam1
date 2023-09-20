@@ -6,4 +6,4 @@ Meu nome é Luan Moraes
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-![](https://media.tenor.com/-ZA3mbMSUSMAAAAd/solo-leveling-sung-jin-woo.gif)
+![](https://media.tenor.com/3sWk5R0q5z0AAAAd/jin-woo.gif)
