@@ -8,4 +8,4 @@ Meu nome é Luan Moraes
 
 ![]()
 
-https://midia.tenor.com/i7llTDasolo-leveling-gif-
+https://media.tenor.com/8ljE2rTNFl4AAAAC/sung-jin-woo-solo-leveling.gif
